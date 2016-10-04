@@ -1,0 +1,1 @@
+I've sent this one to Intertech, YapıKredi and Avea.
